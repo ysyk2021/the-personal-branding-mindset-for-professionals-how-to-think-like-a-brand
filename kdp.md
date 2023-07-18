@@ -10,7 +10,6 @@ Drawing from the latest research in marketing, psychology, and entrepreneurship,
 
 This book is essential reading for anyone looking to advance their career and establish themselves as thought leaders in their field. So why wait? Start building your personal brand today!
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
 
 
