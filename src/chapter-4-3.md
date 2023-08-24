@@ -1,5 +1,3 @@
-Building Confidence and Authenticity
-========================================================================
 
 In order to build a strong personal brand, it is essential to have confidence and authenticity. This chapter will focus on building self-awareness, which is the foundation for developing these qualities.
 

@@ -1,5 +1,3 @@
-Chapter 5: Crafting Your Narrative
-==================================
 
 Crafting a compelling personal brand narrative is essential for building a strong personal brand. In this chapter, we will explore the impact of crafting a compelling narrative on personal branding, techniques for creating a personal brand narrative, and building storytelling and messaging skills.
 
@@ -46,5 +44,4 @@ Conclusion
 ----------
 
 Crafting a compelling personal brand narrative is essential for building a strong personal brand. By understanding the impact of a well-crafted narrative, using techniques such as developing a clear value proposition and telling personal stories, and improving your storytelling and messaging skills through active listening, writing, public speaking, and seeking feedback, you can create a powerful and authentic personal brand narrative that sets you apart from others.
-
 

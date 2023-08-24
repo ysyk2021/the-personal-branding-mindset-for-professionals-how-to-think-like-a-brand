@@ -1,5 +1,3 @@
-Chapter 7: Networking and Relationship-Building
-===============================================
 
 In this chapter, we will explore the importance of networking and relationship-building in personal branding. We will discuss techniques for building and maintaining professional relationships and how to develop collaboration and negotiation skills.
 

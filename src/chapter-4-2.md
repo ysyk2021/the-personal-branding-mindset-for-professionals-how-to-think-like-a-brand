@@ -1,5 +1,3 @@
-Identifying Your Values, Strengths, and Unique Selling Proposition
-======================================================================================================
 
 In order to build a strong personal brand, it's essential to have a solid understanding of your values, strengths, and unique selling proposition. In this chapter, we'll explore techniques for building self-awareness and identifying these key components of your personal brand.
 

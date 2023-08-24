@@ -1,5 +1,3 @@
-The Impact of Crafting a Compelling Narrative on Personal Branding
-======================================================================================================
 
 Crafting a compelling personal brand narrative is essential for building a strong personal brand. In this chapter, we will explore the impact of crafting a compelling narrative on personal branding.
 

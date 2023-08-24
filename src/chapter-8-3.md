@@ -1,5 +1,3 @@
-Building Collaboration and Negotiation Skills
-==============================================================================================
 
 Networking and relationship-building are essential components of building a strong personal brand. In this chapter, we will explore the role of networking and relationship-building in personal branding and strategies for building collaboration and negotiation skills.
 

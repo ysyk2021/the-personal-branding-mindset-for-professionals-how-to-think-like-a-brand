@@ -1,5 +1,3 @@
-Chapter 3: Building Self-Awareness
-==================================
 
 Building self-awareness is a crucial component of personal branding. In this chapter, we will explore techniques for building self-awareness and identifying your values, strengths, and unique selling proposition. We will also discuss how to build confidence and authenticity.
 

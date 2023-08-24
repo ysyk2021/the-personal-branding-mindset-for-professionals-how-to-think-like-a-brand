@@ -1,5 +1,3 @@
-Types of Personal Branding
-======================================================================
 
 Personal branding involves creating a unique identity and image for yourself that sets you apart from others. In this chapter, we will explore the two main types of personal branding.
 

@@ -1,5 +1,3 @@
-Techniques for Building and Maintaining Professional Relationships
-===================================================================================================================
 
 Networking and relationship-building are essential components of building a successful personal brand. In this chapter, we will explore techniques for building and maintaining professional relationships to help you establish trust and credibility with your target audience.
 

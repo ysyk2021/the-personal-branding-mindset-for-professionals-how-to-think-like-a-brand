@@ -1,5 +1,3 @@
-Building Storytelling and Messaging Skills
-==============================================================================
 
 Crafting your narrative is a crucial component of building a successful personal brand. In this chapter, we will explore techniques for building storytelling and messaging skills to help you create a compelling personal narrative.
 
