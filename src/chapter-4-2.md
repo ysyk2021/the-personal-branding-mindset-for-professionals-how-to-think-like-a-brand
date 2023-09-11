@@ -1,5 +1,4 @@
-Chapter 3: Identifying Your Values, Strengths, and Unique Selling Proposition
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will delve into the process of identifying your values, strengths, and unique selling proposition (USP). Understanding these key elements is crucial for creating a strong personal brand that resonates with your target audience.
 

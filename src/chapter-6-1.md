@@ -1,5 +1,4 @@
-Chapter 7: The Impact of Crafting a Compelling Narrative on Personal Branding
-=============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significant impact that crafting a compelling narrative has on personal branding. A well-crafted narrative helps shape your personal brand identity, engage your audience, and differentiate yourself in a competitive professional landscape.
 

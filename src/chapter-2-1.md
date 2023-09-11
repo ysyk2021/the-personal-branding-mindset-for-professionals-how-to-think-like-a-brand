@@ -1,5 +1,4 @@
-Chapter 1: What is Personal Branding?
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the concept of personal branding and its significance in today's professional landscape. Understanding what personal branding is sets the stage for developing a mindset that empowers professionals to think strategically about their personal brand.
 

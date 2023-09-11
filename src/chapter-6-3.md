@@ -1,5 +1,4 @@
-Chapter 8: Building Storytelling and Messaging Skills
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of storytelling and messaging skills in personal branding. Crafting compelling stories and delivering impactful messages are essential for effectively communicating your personal brand and connecting with your target audience.
 

@@ -1,5 +1,4 @@
-Chapter 10: Techniques for Building and Maintaining Professional Relationships
-==============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for building and maintaining professional relationships. Cultivating strong connections with others is essential for personal branding success, as it supports collaboration, networking opportunities, and the growth of your professional reputation.
 

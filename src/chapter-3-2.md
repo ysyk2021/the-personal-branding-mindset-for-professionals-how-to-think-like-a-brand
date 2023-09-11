@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Developing a Growth Mindset
-=====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for developing a growth mindset as a professional. Adopting a growth mindset is crucial for personal branding success as it allows you to embrace challenges, learn from setbacks, and continuously improve and evolve.
 

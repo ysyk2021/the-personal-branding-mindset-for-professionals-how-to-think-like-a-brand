@@ -1,5 +1,4 @@
-Chapter 7: Techniques for Evaluating Your Personal Brand
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques for evaluating your personal brand. Regularly assessing and analyzing your personal brand is crucial for ensuring its effectiveness, relevance, and alignment with your professional goals.
 

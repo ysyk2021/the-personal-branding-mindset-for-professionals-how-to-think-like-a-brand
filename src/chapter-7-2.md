@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Optimizing Your Social Media Profiles
-===============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore techniques for optimizing your social media profiles to enhance your personal brand. Social media platforms play a crucial role in personal branding, and by utilizing these techniques, professionals can maximize the impact of their online presence.
 

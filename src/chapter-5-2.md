@@ -1,5 +1,4 @@
-Chapter 5: Techniques for Identifying and Understanding Your Target Audience
-============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore various techniques that professionals can use to identify and understand their target audience. Understanding your target audience is essential for effective personal branding, as it helps you tailor your messaging, content, and overall brand strategy to resonate with the right people.
 

@@ -1,5 +1,4 @@
-Chapter 5: Building Confidence and Authenticity
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of building confidence and authenticity in personal branding. Developing a strong sense of self-assurance and embracing your authentic self are crucial for creating an impactful and genuine personal brand.
 

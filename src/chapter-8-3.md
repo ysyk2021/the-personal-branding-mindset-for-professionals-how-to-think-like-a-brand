@@ -1,5 +1,4 @@
-Chapter 9: Building Collaboration and Negotiation Skills
-========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the importance of collaboration and negotiation skills in personal branding. Developing these skills empowers professionals to build successful partnerships, foster teamwork, and navigate win-win situations that benefit both parties involved.
 

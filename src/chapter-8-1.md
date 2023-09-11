@@ -1,5 +1,4 @@
-Chapter 7: The Importance of Networking and Relationship-Building in Personal Branding
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of networking and relationship-building in personal branding. Establishing and nurturing professional connections is crucial for expanding your network, creating opportunities, and enhancing your personal brand's reputation.
 

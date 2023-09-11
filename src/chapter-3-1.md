@@ -1,5 +1,4 @@
-Chapter 5: Understanding the Importance of a Growth Mindset in Personal Branding
-================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of a growth mindset in personal branding. Developing and maintaining a growth mindset is essential for professionals as it enables them to navigate challenges, embrace learning opportunities, and continuously evolve their personal brand.
 

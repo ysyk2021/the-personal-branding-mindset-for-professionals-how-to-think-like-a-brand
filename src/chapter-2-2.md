@@ -1,5 +1,4 @@
-Chapter 4: Types of Personal Branding
-=====================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore different types of personal branding strategies that professionals can adopt. Understanding these various approaches helps individuals tailor their personal brand to align with their goals, values, and target audience.
 

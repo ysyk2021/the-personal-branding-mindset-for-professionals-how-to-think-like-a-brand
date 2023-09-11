@@ -1,5 +1,4 @@
-Chapter 3: The Importance of Clarifying Your Target Audience in Personal Branding
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In this chapter, we will explore the significance of clarifying your target audience in personal branding. Understanding and defining your target audience is a fundamental step in developing a successful personal brand. It helps you align your messaging, establish meaningful connections, and achieve your professional goals.
 
